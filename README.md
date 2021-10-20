@@ -1,1 +1,1 @@
-# jeju11
+# jeju beach_info
